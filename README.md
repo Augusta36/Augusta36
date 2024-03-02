@@ -2,6 +2,7 @@
 - 👀 I’m interested in all kinds of subjects and topics, especially those related to health & medicine, business, management, and finance.
 - 🌱 I’m currently learning and expanding my skills in research, writing, and content development through my MBA program.
 - 💞️ I’m looking to collaborate on projects that involve creating original content, conducting research, or require graphics design expertise.
+- My educational pursuits further enhance my analytical and research capabilities, ensuring that I can produce original and well-informed content on college-level topics across various subjects.
 - 📫 How to reach me: Feel free to reach out to me via email at augustaezeamaku@gmail.com or connect with me on LinkedIn www.linkedin.com/in/augustaogochukwu.
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I also have a passion for graphics designing and enjoy incorporating visual elements into my work.
